@@ -1,5 +1,5 @@
 ---
-### General introduction読んでみた
+### "General introduction"読んでみた
 <br>
 日本女子大学大学院
 <br>
